@@ -4,5 +4,5 @@ bing bing bong bong yessir
 
 computing v confusing i require assistance 
 
-thank u good bye
+thank u good bye.
 :cowboy_hat_face:	
